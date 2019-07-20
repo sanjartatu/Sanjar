@@ -1,0 +1,2 @@
+# Sanjar
+Induvudual devoloper
